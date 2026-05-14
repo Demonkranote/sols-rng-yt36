@@ -1,4 +1,4 @@
-
+Download sol's rng Scripts updated for sol's rng, the best script available, featuring invisibility and aimbot. This powerful tool ensures you have the upper hand in every match,
 
 
 
